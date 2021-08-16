@@ -1,1 +1,1 @@
-[Portfolio](https://ryanfitzgerald.github.io/devportfolio/).
+[Portfolio](https://znogoudj.github.io/cv/).
